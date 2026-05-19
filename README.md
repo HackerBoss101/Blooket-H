@@ -1,4 +1,4 @@
-# Blooket-H(acker)
+# Blooket-Cool-H(acker)-Updated
 
 Works for hacking blooket.
 
